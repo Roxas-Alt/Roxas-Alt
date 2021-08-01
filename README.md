@@ -1,5 +1,5 @@
 - 👋 Olá, sou @Roxas-Alt
 - 👀 Estou interessado em ums bagulho ai
-- 🌱 Atualmente estou aprendendo a criar mods de RimWorld
+- 🌱 Atualmente estou aprendendo a utilizar coisas das boas
 - 💞️ Pretendo colaborar em... que poha é essa? não sei.
-- 📫 Me encontre em... Sem lugar definido.
+- 📫 Me encontre em... Nenhum lugar definido.
